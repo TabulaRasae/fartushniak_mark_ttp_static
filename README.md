@@ -1,0 +1,2 @@
+# fartushniak_mark_ttp_static
+fartushniak_mark_ttp_static
